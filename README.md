@@ -1,5 +1,18 @@
- Hi, I’m @DevilishKingz 
- I'M INTERESTED INTO OLD SEGA GAMES, ^_^ , AND MY BOYFRIEND! @AngelicxFairy
-IF YOU ARE INTERESTED IN WANTING TO KNOW MORE ABOUT US, PLEASE CLICK ON OUR CARRD FOR MORE.
- https://bibibear.carrd.co/   WE'RE ALWAYS WANTING TO KNOW OTHER PEOPLE, <3 BUT FOR RIGHT NOW IM SPENDING TIME WITH MY S/O AND FRIENDS,
-\.WE APPRECIATE YOU VISITING OUR PAGE./
+ʜᴇʟʟᴏ, ᴡᴇ ᴀʀᴇ ᴅᴇᴠɪʟɪsʜ ᴋɪɴɢᴢ, ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴘᴀɢᴇ,
+ᴡᴇ ᴀʀᴇ ᴀ ᴅɪᴅ ᴏsᴅᴅ sʏsᴛᴇᴍ ᴏғ 50+ ᴀʟᴛᴇʀs.
+sᴛᴀᴛᴜs = ᴅɪᴀɢɴᴏsɪs ,  ᴅᴏ ɴᴏᴛ ʜᴀʀᴍ ᴏᴜʀ s/ᴏ ᴅᴏ ɴᴏᴛ ᴄᴏᴍᴇ ᴜᴘ ᴀɴᴅ ʜᴀʀᴀss ᴜs. ᴡᴇ ᴀʀᴇ ᴅᴏɴᴇ ᴡɪᴛʜ ᴅʀᴀᴍᴀ, ᴘʟᴇᴀsᴇ ᴋᴇᴇᴘ ɪɴ ᴍɪɴᴅ ᴡᴇ'ʀᴇ ʜᴇᴀʟɪɴɢ ғʀᴏᴍ ᴀ ʜᴇᴄᴛɪᴄ ᴅʀᴀᴍᴀ ᴇᴠᴇɴᴛ ғʀᴏᴍ ʟᴀsᴛ ʏᴇᴀʀ, ᴛʜᴀɴᴋ's ғᴏʀ ᴜɴᴅᴇʀsᴛᴀɴᴅɪɴɢ. ᴡᴇ ᴀʀᴇ ᴛᴀᴋᴇɴ ʙʏ ᴏᴜʀ ᴛʀᴜᴇ ᴀɴᴅ ᴏɴʟʏ ʜᴜsʙᴀɴᴅ, ᴅᴏɴ'ᴛ ғʟɪʀᴛ ᴡɪᴛʜ ᴜs ᴀs ᴛʜᴀᴛ ᴍᴀᴋᴇs ᴜs ᴠᴇʀʏ ᴠᴇʀʏ ᴜɴᴄᴏᴍғᴏʀᴛᴀʙʟᴇ, ᴡᴇ ᴜsᴇ 
+ʜᴇ/ᴛʜᴇʏ/ɪᴛ ᴘʀᴏɴᴏᴜɴs.  ᴏᴜʀ ɴᴀᴍᴇs ᴀʀᴇ ᴢᴇɴ/ʙɪʙɪ/ᴠɪɴ/ʙᴇʟʟs/ᴠɪɴʏʟ/ᴅᴇᴠɪʟɪsʜ/ʜᴇʟʟɪsʜ
+ʏᴇs ᴡᴇ ʜᴀᴠᴇ ᴀʟᴏᴛ ᴏғ ɴᴀᴍᴇs ʙᴜᴛ ᴜsᴇ ᴀɴʏ ɴᴀᴍᴇ ᴡᴇ ɢᴏ ʙʏ, ᴛʜᴇ ʜᴏsᴛs ɴᴀᴍᴇ ɪs "ɪᴀɴ"
+ᴛʜᴇ ʜᴏsᴛ ɪs 19 ʏᴇᴀʀs ᴏʟᴅ ᴀɴᴅ ʜᴇ ɪs ʜᴀᴘᴘɪʟʏ ᴛᴀᴋᴇɴ, ʜᴇ ɪs ɴᴏᴛ ɪɴᴛᴇʀᴇsᴛᴇᴅ ɪɴᴛᴏ ᴡᴏᴍᴇɴ, ᴀs ʜᴇ ɢᴇᴛs ᴠᴇʀʏ ᴜɴᴄᴏᴍғᴏʀᴛᴀʙʟᴇ ʙʏ ᴛʜᴇᴍ ғᴏʀ sᴘᴇᴄɪғɪᴄ ʀᴇᴀsᴏɴs.
+ʀᴇᴀᴅ ᴀʙᴏᴜᴛ ᴛʜᴇ ʜᴏsᴛ ɪɴ ᴏᴜʀ ᴄᴀʀʀᴅ.  (https://bibibear.carrd.co/  )
+──────▄▀▄─────▄▀▄ 
+─────▄█░░▀▀▀▀▀░░█▄
+─▄▄──█░░░░░░░░░░░█──▄▄
+█▄▄█─█░░▀░░┬░░▀░░█─█▄▄█
+──────▄▀▄─────▄▀▄
+─────▄█░░▀▀▀▀▀░░█▄
+─▄▄──█░░░░░░░░░░░█──▄▄
+█▄▄█─█░░▀░░┬░░▀░░█─█▄▄█
+
+
+ 
